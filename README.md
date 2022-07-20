@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on Soaps server please.
 - 🤔 I’m looking for help with sex..
 - 💬 Ask me about sex.
-- 📫 How to reach me: [YouTube] https://www.youtube.com/channel/UCFX0aMrKo_f8eJUjtlX_6UA
+- 📫 How to reach me: [YouTube] https://www.youtube.com/channel/UCFX0aMrKo_f8eJUjtlX_6UA [DISCORD] 970#0001
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: No.
